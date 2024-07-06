@@ -1,2 +1,2 @@
-send a message to ya
+contact ya
 
